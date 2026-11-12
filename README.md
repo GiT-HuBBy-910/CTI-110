@@ -1,2 +1,2 @@
 # CTI-110
-Build IT &amp; They Will Come
+Build I.T. &amp; They Will Come
